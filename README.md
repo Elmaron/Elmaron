@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on something, don't know.
 - 📫 How to reach me somehow, somewhere on
   
-  $Tumblr$      elmaronstanford.tumblr.com oder worldofrespawn.tumblr.com
+  $Tumblr$      https://elmaronstanford.tumblr.com oder https://worldofrespawn.tumblr.com
   $Instagrám$   www.instagram.com/the_elmaron
 
 <!---
