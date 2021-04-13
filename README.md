@@ -5,7 +5,7 @@
 - 📫 How to reach me somehow, somewhere on
   
 -  $Tumblr$      https://elmaronstanford.tumblr.com oder https://worldofrespawn.tumblr.com
--  $Instagrám$   www.instagram.com/the_elmaron
+-  $Instagram$   www.instagram.com/the_elmaron
 
 <!---
 Elmaron/Elmaron is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
