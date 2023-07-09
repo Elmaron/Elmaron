@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on something, don't know.
 - 📫 How to reach me somehow, somewhere on
   
--  $Tumblr$      https://elmaronstanford.tumblr.com oder https://worldofrespawn.tumblr.com
--  $Instagram$   www.instagram.com/the_elmaron
+-  $Instagram$   www.instagram.com/elmaron_stanford
 
 <!---
 Elmaron/Elmaron is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
